@@ -1,4 +1,4 @@
-# 🐾 Website Bán Sản Phẩm Chăm Sóc Thú Cưng
+# 🐾 Website Bán Sản Phẩm Chăm Sóc Thú Cưng Kangdy PetShop
 
 ## 👤 Thông Tin Sinh Viên
 
